@@ -1,3 +1,3 @@
 HASIL RUNNING
 
-<img src="https://drive.google.com/file/d/1KeIzDq4aG-tMQ8eCUX85s1O-CV91r5bZ/view?usp=drive_link">
+<img src="C:\Users\User\OneDrive\Pictures\Screenshots\Screenshot 2024-09-26 142429.png">
